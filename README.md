@@ -2,3 +2,4 @@
 - 👀 I’m interested in game
 - 🌱 I’m currently learning trade
 for1
+for w
